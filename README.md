@@ -1,2 +1,0 @@
-# jasteb-vip
-pantek
